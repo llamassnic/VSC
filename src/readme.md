@@ -1,0 +1,2 @@
+hola varicela es una enfermedad muy contagiosa causada por el virus de hola varicela-zóster (VVZ). Produce un sarpullido con ampollas, picazón, cansancio y fiebre. 
+El sarpullido aparece primero en el estómago, hola espalda y hola cara, y puede después extenderse por todo el cuerpo.
